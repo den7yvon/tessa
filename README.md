@@ -1,2 +1,0 @@
-# tessa
-TESSA'S GIFT
